@@ -1,6 +1,6 @@
 👋 Hi, I’m Lakshmi!
 
-🇮🇳 I’m a 25 year old from India
+🇮🇳 I’m a 26 year old from India
 
 💻 I’m currently pursuing my Masters in Computer Science and Software Engineering
 
